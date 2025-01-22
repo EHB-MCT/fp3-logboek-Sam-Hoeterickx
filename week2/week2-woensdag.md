@@ -31,5 +31,5 @@
 - Ik ben blij met het werk dat vandaag gedaan is geraakt
 
 > **Algmeeen gevoel:**  
-> - **"Blij"** ::):  
+> - **"Blij"** :  :)  :  
 
